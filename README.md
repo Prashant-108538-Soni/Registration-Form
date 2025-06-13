@@ -1,4 +1,4 @@
-# hoxton
+# Hoxton Wealth
 
 A new Flutter project.
 
