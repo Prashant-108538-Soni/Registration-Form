@@ -1,16 +1,105 @@
-# Hoxton Wealth
-
-A new Flutter project.
-
-## Getting Started
-
-This project is a starting point for a Flutter application.
-
-A few resources to get you started if this is your first Flutter project:
-
-- [Lab: Write your first Flutter app](https://docs.flutter.dev/get-started/codelab)
-- [Cookbook: Useful Flutter samples](https://docs.flutter.dev/cookbook)
-
-For help getting started with Flutter development, view the
-[online documentation](https://docs.flutter.dev/), which offers tutorials,
-samples, guidance on mobile development, and a full API reference.
+Eventually she had saved enough money to buy a small car.
+[ + two objects ] He bought his mother some flowers/He bought some flowers for his mother.
+There are more people buying at this time of the year so prices are high.
+The company was set up to buy and sell shares on behalf of investors.
+I bought my camera from a friend of mine.
+Synonyms
+acquirepick something up (BUY)purchase formalsnap something up informal
+Eventually she had saved enough money to buy a small car.
+[ + two objects ] He bought his mother some flowers/He bought some flowers for his mother.
+There are more people buying at this time of the year so prices are high.
+The company was set up to buy and sell shares on behalf of investors.
+I bought my camera from a friend of mine.
+Synonyms
+acquirepick something up (BUY)purchase formalsnap something up informal
+Eventually she had saved enough money to buy a small car.
+[ + two objects ] He bought his mother some flowers/He bought some flowers for his mother.
+There are more people buying at this time of the year so prices are high.
+The company was set up to buy and sell shares on behalf of investors.
+I bought my camera from a friend of mine.
+Synonyms
+acquirepick something up (BUY)purchase formalsnap something up informal
+Eventually she had saved enough money to buy a small car.
+[ + two objects ] He bought his mother some flowers/He bought some flowers for his mother.
+There are more people buying at this time of the year so prices are high.
+The company was set up to buy and sell shares on behalf of investors.
+I bought my camera from a friend of mine.
+Synonyms
+acquirepick something up (BUY)purchase formalsnap something up informal
+Eventually she had saved enough money to buy a small car.
+[ + two objects ] He bought his mother some flowers/He bought some flowers for his mother.
+There are more people buying at this time of the year so prices are high.
+The company was set up to buy and sell shares on behalf of investors.
+I bought my camera from a friend of mine.
+Synonyms
+acquirepick something up (BUY)purchase formalsnap something up informal
+Eventually she had saved enough money to buy a small car.
+[ + two objects ] He bought his mother some flowers/He bought some flowers for his mother.
+There are more people buying at this time of the year so prices are high.
+The company was set up to buy and sell shares on behalf of investors.
+I bought my camera from a friend of mine.
+Synonyms
+acquirepick something up (BUY)purchase formalsnap something up informal
+Eventually she had saved enough money to buy a small car.
+[ + two objects ] He bought his mother some flowers/He bought some flowers for his mother.
+There are more people buying at this time of the year so prices are high.
+The company was set up to buy and sell shares on behalf of investors.
+I bought my camera from a friend of mine.
+Synonyms
+acquirepick something up (BUY)purchase formalsnap something up informal
+Eventually she had saved enough money to buy a small car.
+[ + two objects ] He bought his mother some flowers/He bought some flowers for his mother.
+There are more people buying at this time of the year so prices are high.
+The company was set up to buy and sell shares on behalf of investors.
+I bought my camera from a friend of mine.
+Synonyms
+acquirepick something up (BUY)purchase formalsnap something up informal
+Eventually she had saved enough money to buy a small car.
+[ + two objects ] He bought his mother some flowers/He bought some flowers for his mother.
+There are more people buying at this time of the year so prices are high.
+The company was set up to buy and sell shares on behalf of investors.
+I bought my camera from a friend of mine.
+Synonyms
+acquirepick something up (BUY)purchase formalsnap something up informal
+Eventually she had saved enough money to buy a small car.
+[ + two objects ] He bought his mother some flowers/He bought some flowers for his mother.
+There are more people buying at this time of the year so prices are high.
+The company was set up to buy and sell shares on behalf of investors.
+I bought my camera from a friend of mine.
+Synonyms
+acquirepick something up (BUY)purchase formalsnap something up informal
+Eventually she had saved enough money to buy a small car.
+[ + two objects ] He bought his mother some flowers/He bought some flowers for his mother.
+There are more people buying at this time of the year so prices are high.
+The company was set up to buy and sell shares on behalf of investors.
+I bought my camera from a friend of mine.
+Synonyms
+acquirepick something up (BUY)purchase formalsnap something up informal
+Eventually she had saved enough money to buy a small car.
+[ + two objects ] He bought his mother some flowers/He bought some flowers for his mother.
+There are more people buying at this time of the year so prices are high.
+The company was set up to buy and sell shares on behalf of investors.
+I bought my camera from a friend of mine.
+Synonyms
+acquirepick something up (BUY)purchase formalsnap something up informal
+Eventually she had saved enough money to buy a small car.
+[ + two objects ] He bought his mother some flowers/He bought some flowers for his mother.
+There are more people buying at this time of the year so prices are high.
+The company was set up to buy and sell shares on behalf of investors.
+I bought my camera from a friend of mine.
+Synonyms
+acquirepick something up (BUY)purchase formalsnap something up informal
+Eventually she had saved enough money to buy a small car.
+[ + two objects ] He bought his mother some flowers/He bought some flowers for his mother.
+There are more people buying at this time of the year so prices are high.
+The company was set up to buy and sell shares on behalf of investors.
+I bought my camera from a friend of mine.
+Synonyms
+acquirepick something up (BUY)purchase formalsnap something up informal
+Eventually she had saved enough money to buy a small car.
+[ + two objects ] He bought his mother some flowers/He bought some flowers for his mother.
+There are more people buying at this time of the year so prices are high.
+The company was set up to buy and sell shares on behalf of investors.
+I bought my camera from a friend of mine.
+Synonyms
+acquirepick something up (BUY)purchase formalsnap something up informal
